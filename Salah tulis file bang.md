@@ -1,1 +1,0 @@
-Salah tulis file bang
